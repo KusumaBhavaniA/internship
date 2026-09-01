@@ -1,18 +1,2 @@
-
-# internship
-xtuxutxigxj
-xfxufxjg
-hiifufxyrzurutfxxjjfkg
-zizogfxitxtx
-fuzifzgixlhcts
-jfsitaitsgbmvfuf
-xitxigxigxyf TD tdohfohcitdtiskh
-#fkhclhfoyfohclhcy
-gxigdohcoj
-call ycouclj
-udydckovj
-igxfkvgfyhc
-hchfxgxkckbchfyc
-gdyxilbhsrsearsxx
-jviyx
+internship 
 
