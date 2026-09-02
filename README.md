@@ -1,6 +1,4 @@
 
-ckhckgxkh
-szufzuf
 sitsitzgo
 zirzigxkhcjvhctisitxoycoh oh ohcitxoycphvj
 xoucohcpj
